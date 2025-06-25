@@ -1,0 +1,2 @@
+# freedom
+auto coup
